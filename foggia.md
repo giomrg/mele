@@ -1,1 +1,1 @@
-foggiacapitale
+foggia capitale
