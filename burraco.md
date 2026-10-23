@@ -1,1 +1,1 @@
-we love to play burraco
+we love to play burraco.
